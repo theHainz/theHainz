@@ -1,4 +1,7 @@
-### Hi there 👋
+### I LIVE IN A DITCH AND AM BROKE AS FUCK AND CANNOT AFFORD BEEF 
+### NO COLLEGE NO FRIENDS SMALL PENIS AS FUCK WEIRD IN THE FACE 
+### I WILL DIE WITHIN THE YEAR AND I AM THE MAN WOMEN PREFER
+ 
 
 <!--
 **theHainz/theHainz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
